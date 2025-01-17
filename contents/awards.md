@@ -1,4 +1,4 @@
-- The 18th "Challenge Cup" National College students extra-curricular Academic Science and technology special award, 2023.
-- Merit student of BUAA, 2020, 2021, 2022.
+- National Scholarship for Chinese Undergraduates, 2023.
+- Academic Excellence of Beihang University, 2022 2023.
 
 
