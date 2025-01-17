@@ -1,6 +1,6 @@
 
 
-[![PaoShou-China](https://img.shields.io/badge/PaoShou_China-github-blue?logo=github)](https://github.com/PaoShou-China)
+[![jiaxuanyue121](https://img.shields.io/badge/jiaxuanyue121-github-blue?logo=github)](https://github.com/jiaxuanyue121)
 
 She is currently pursuing a Bachelor Degree in Shen Yuan College, Beihang University, China.
 
